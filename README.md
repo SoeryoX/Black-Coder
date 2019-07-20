@@ -12,9 +12,7 @@ BUAT YANG RECODE KAPAN LO BISA BIKIN TOOLS? JANGAN RECODE SC PUNYA ORANG INGAT R
 Maaf ya Gaesss Tadi Saya, Emosi😅😁 Karena Saya Cuman Mengingatkan
 Belajar lah Sendiri Jangan Menjagakan Orang Lain
 
-Ok Langsung Saja yaa Cekidot
- Dibahwa ini
-        👇
+Ok Langsung Saja Cekidot
 -------------------------------------
 PERHATIAN SEBELUM INSTALL HARAP KETIK
 PERINTAHNYA DULU VOS :v
