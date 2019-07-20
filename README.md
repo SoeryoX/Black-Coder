@@ -1,12 +1,5 @@
 # Black-Coder
 
-yo Gaess Maaf ya, Kalau Telat Bikin Tools😂 Karena Saya Sibuk, Dengan Urusan Duta😅 
-
-Ok Gaess Kali Ini Saya Bikin Tools BlackCoder,
-Apa Sih BlackCoder? BlackCoder Itu Semacam Seperti DarkFB Premium Mini,
-Jangan Bilang Sama yaa Gaess Karena Ini Tools Lengkap Fitur2 nya Juga Lengkap
-Terserah Kalian Mau Pakai Yang Mana Menurut Kalian Yang Bagus Di Pakai😅
-
 BUAT YANG RECODE KAPAN LO BISA BIKIN TOOLS? JANGAN RECODE SC PUNYA ORANG INGAT RECODE SC ORANG? ITU SAMA AJA LU TIDAK BISA MENJADI MASTAH!!!
 
 Maaf ya Gaesss Tadi Saya, Emosi😅😁 Karena Saya Cuman Mengingatkan
