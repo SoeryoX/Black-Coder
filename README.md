@@ -12,8 +12,8 @@ PERINTAHNYA DULU VOS :v
 -------------------------------------
 | (l live in The Program) |
 
-BlackCoder  V7.8 Keluaran Terbaru 
-Selain BlackCoder Ini V7.8Di Ubah Sama Orang?
+BlackCoder  V7.8 
+Selain BlackCoder Ini V7.8 Di Ubah Sama Orang?
 Menjadi Script Baru V7.8
 Itu Hanya Recode
 
@@ -40,7 +40,24 @@ DIATAS LANGIT MASIH ADA LANGIT
 -------------------------------------------------------------
 
 
+
 NB : Bila Sc Ada Masalah Silahkan Hubungi Saya Nantik Anda Akan Di Arahkan Di Whatsaap
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
